@@ -1,4 +1,4 @@
-MEMBRES DU GROUPE 
+MEMBERS
 
 BOSSOU Nonhouégnon Guy Gémisse (Etudiant1)
 
